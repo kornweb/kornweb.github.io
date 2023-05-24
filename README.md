@@ -1,2 +1,0 @@
-# kornweb.github.io
-jh
